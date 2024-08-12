@@ -22,4 +22,4 @@
 
 - 🤔 Formado em Técnico em Meio Ambiente
 - 📫 Estudando Desenvolvimento Web
-- 😄 Pronouns: Ele/Dele
+- 😄 Pronomes: Ele/Dele
